@@ -1,1 +1,1 @@
-# majorbisunesses
+# majorbusiness
